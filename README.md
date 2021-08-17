@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AdverseEvent
 - 👀 I’m interested in ... PROGRESSION
 - 🌱 I’m currently learning ... PRE-HEALTH
-- 💞️ I’m looking to collaborate on ... IDK!
+- 💞️ I’m looking to collaborate on ... THE HUMAN EXPERIENCE
 - 📫 How to reach me ... LOOK INTO THE SKY SIMBA
 
 <!---
